@@ -1,0 +1,1 @@
+# morinowakiniaru.github.io
